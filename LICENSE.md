@@ -1,4 +1,4 @@
-
+professional Script for one tap is the best one tap Script, featuring auto-collect and teleport. Safe and powerful for all your needs.
 
 
 
